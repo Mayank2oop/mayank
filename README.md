@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **DevOps**
 
-- 💬 Ask me about **Android , DEVOP*
+- 💬 Ask me about  , DEVOP*
 
 - 📫 How to reach me **mayankjagtap50@gmail.com**
 
